@@ -6,4 +6,4 @@ heyyy hey hey heyyyy i'm **fish** but you can call me by the name of **whatever 
 - **i love any kind of interactions** (boop, kiss, etc)!!!!
 - **i have crazyyy social anxiety** so i'm really sorry if conversations are stiff or i don't respond when i should! i'm listening :)
 - comfort characters include **pretty much everyone in popcorn edition** but especially **bampal**, i love most other dnb characters too especially if they're a pair/part of a group with my main skins (bombu, stylish gods, bambistep, etc)!! **if your skin is any of these pleaaaaaaase interact** i wanna seeee!!!!!
-![ok](https://m.gjcdn.net/fireside-post-image/1400/13674411-xe3ruefb-v4.webp)
+![ok](https://cdn.discordapp.com/attachments/745883341068304454/992070749588312155/IMG_2214.png)
