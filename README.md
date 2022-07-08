@@ -1,4 +1,4 @@
-## 🐟 fish / kel / mustard 🦞
+## 🐟 fish / zetrus 🦞
 ![ok](https://i.ibb.co/FnXb8s7/aww-the-aww.png)
 heyyy hey hey heyyyy i'm **fish** but you can call me by the name of **whatever skin i'm in** too!
 - i'm always in the dave and bambi area or sometimes running around with friends! my usual skins are zetrus, bamburg, banzack, dambu, and bamberly! usually i'm on the safe server but occasionally i will join the 18+ server with my friends
