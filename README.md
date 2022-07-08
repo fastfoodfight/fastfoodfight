@@ -1,10 +1,9 @@
 ## 🐟 fish / kel / mustard 🦞
 ![ok](https://i.ibb.co/FnXb8s7/aww-the-aww.png)
 heyyy hey hey heyyyy i'm **fish** but you can call me by the name of **whatever skin i'm in** too!
-- you'll usually see me running around with friends or in the dnb area, though i don't play super often!
-- **i don't care if you copy my skins** or whatever people are so pressed about but most of them are my own headcanons sooo
-- i'm mostly seen as zetrus, banzack, bamburg, dambu, and sometimes bamberly, these are kins but **i don't mind doubles at all**! i love seeing other people's skins, please interact!!
-- **i love any kind of interactions** (boop, kiss, etc)!!!!
-- **i have crazyyy social anxiety** so i won't int first usually, and i'm really sorry if conversations are stiff or i don't respond when i should! promise i'm listening :)
-- i am usually online/matching with the [husband](https://github.com/transgenderwedsen) and in vc, however it is totally ok to interact with me even if we seem busy!
-- comfort characters include **pretty much everyone in popcorn edition** but especially **bampal**, i love most other dnb characters too especially if they're a pair/part of a group with my main skins (bombu, stylish gods, bambistep, etc)!! **if your skin is any of these pleaaaaaaase interact** i wanna seeee!!!!
+- i'm always in the dave and bambi area or sometimes running around with friends!
+- **i don't care if you take inspo from me** but try not to carbon copy lol. i won't say anything if you do though i'm not clinically insane
+- **i love any kind of interactions** (boop, kiss, etc)!!!! it's also always ok to interact even if i seem busy!
+- **my anxiety is literally crazzyyyy** and i'm kinda socially inept so i won't int first usually, and i'm really sorry if conversations are stiff or i don't respond when i should.. promise i'm listening! i find it much easier when i'm with my [husband](https://github.com/transgenderwedsen) :)
+
+thanks for reading! if you're interested in being friends then my socials are to the left <-- ^_^ (on pc at least lul)
